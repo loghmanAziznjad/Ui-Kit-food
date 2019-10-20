@@ -1,2 +1,2 @@
 # Ui-Kit-Adobe-Xd
-(https://www.aparat.com/v/hXTS3)
+![Screenshot_2019-10-09_14-21-21](https://user-images.githubusercontent.com/aparat.com/v/hXTS3)
